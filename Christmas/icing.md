@@ -6,5 +6,5 @@
     1/2 teaspoon vanilla extract.
     Gel food coloring optional.
     Additional candies and sprinkles for decorating optional.
-    *Source [https://sugarspunrun.com/easy-sugar-cookie-recipe/]*(https://sugarspunrun.com/easy-sugar-cookie-recipe/)
+    Source [https://sugarspunrun.com/easy-sugar-cookie-recipe/](https://sugarspunrun.com/easy-sugar-cookie-recipe/ "Recipe source link")
     
